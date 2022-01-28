@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @Yelt17
+- 👀 I’m interested in Data Science, Data analitycs and engineering
+- 🌱 I’m currently learning Data Science
+- 💞️ I’m looking to collaborate on Projcets for beginers.
+- 📫 How to reach me at yeltsinalva@gmail.com
+- I´m a industrial engineer but im really interested about data so any help will be apreciated. Thanks.
